@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MuaazH
+- 👀 I’m interested in ushering in the dawn of a New World. One defined by purpose and order.
+- 🌱 I’m currently learning that Microsoft ruined PCs, and is constantly trying to lock them up like android phones so you would not even be able to change basic network settings to block ads, like an Android.
+- 📫 How to reach me: muaaz.h.is@gmail.com
