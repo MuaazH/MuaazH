@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @MuaazH
 - 👀 I’m interested in work that pays good.
-- 🌱 I’m currently learning that Microsoft ruined PCs, and is constantly trying to lock them up like android phones, and that Microsoft is Microsoft is retarded.
+- 🌱 I’m currently learning that Microsoft ruined PCs, and is constantly trying to lock them up like android phones, and that Microsoft is retarded.
 - 📫 How to reach me: muaaz.h.is@gmail.com
