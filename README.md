@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @MuaazH
-- 👀 I’m interested in your money, contact me if you have work & money.
-- 🌱 Microsoft is shit.
-- 📫 How to pick a fight with me or reach me: muaaz.h.is@gmail.com
+- 👀 I’m interested in work.
+- 🌱 Microsoft & Apple are pieces of shit.
+- 📫 How to contact me: muaaz.h.is@gmail.com
