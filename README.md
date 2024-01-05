@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @MuaazH
 - 👀 I’m interested in work.
-- 🌱 Microsoft & Apple are pieces of shit.
+- 🌱 Microsoft & Apple are evil.
 - 📫 How to contact me: muaaz.h.is@gmail.com
